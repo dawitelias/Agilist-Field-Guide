@@ -1,1 +1,0 @@
-# Agilist-Field-Guide
